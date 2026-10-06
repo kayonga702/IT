@@ -1,0 +1,2 @@
+# IT
+Flexibility and trust
